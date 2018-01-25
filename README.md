@@ -1,0 +1,2 @@
+# XCO
+XCO new texnoloji
